@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **rijumonroy@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/HP/Downloads/Riju%20Roy%20cv.pdf](file:///C:/Users/HP/Downloads/Riju%20Roy%20cv.pdf)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
